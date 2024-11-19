@@ -1,1 +1,2 @@
 # DEPI_Project_CRUMPS
+Crumps is a unique dining experience that combines the art of traditional pastries with the craft of expertly brewed coffee. At Crumps, we offer a wide selection of freshly made pastries every day, each crafted with an artistic flair and high-quality ingredients. Our menu is designed to provide a delightful experience that pairs perfectly with our handpicked coffee varieties. Whether you’re looking for a quick bite or a relaxing break, Crumps invites you to savor the flavors in a comfortable, classic setting. 
